@@ -1,2 +1,2 @@
 # AgentCRAFT News
-Where that colourful news thing is made.
+Where that colourful news thing is made. Yay.
